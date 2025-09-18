@@ -8,5 +8,3 @@ https://mackenzie365-my.sharepoint.com/:w:/r/personal/10440984_mackenzista_com_b
 
 Por: Vitor Assunção Rocha
 RA: 10440984
-
-Teste
